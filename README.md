@@ -3,4 +3,7 @@
 - 🌱 I’m currently learning everything I can to support other people
 - 💞️ I’m looking to collaborate on SORMAS/HZI/Helmholtz or health relate companies
 - 📫 How to reach me aliciaraber76@gmail.com
-- 🏳️‍⚧ and proud
+- Mobile work 01742045362
+- Mobile (private) 015128871035
+- Tiktok: @meonmondays
+- 🏳️‍⚧ and proud (HRT 01.07.2021)
