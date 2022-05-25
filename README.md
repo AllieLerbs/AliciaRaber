@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lisha
+- 👋 Hi, I’m @LishaR
 - 👀 I’m interested in SORMAS
 - 🌱 I’m currently learning everything I can to support other people
 - 💞️ I’m looking to collaborate on SORMAS/HZI/Helmholtz
