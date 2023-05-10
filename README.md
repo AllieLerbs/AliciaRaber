@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LishaR
-- 👀 I’m interested in SORMAS
+- 👀 I’m interested in SORMAS and Software Developement
 - 🌱 I’m currently learning everything about E-Health
 - 💞️ I’m looking to collaborate on Netzlink/SORMAS
 - 📫 How to reach me aliciaraber76@gmail.com
