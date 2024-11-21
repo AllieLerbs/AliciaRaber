@@ -1,4 +1,4 @@
-- Hello, I am Alicia
+- Hello, I am Allie
 - I’m interested in Software/Game Developement
 - I’m looking for new opportunities in Leipzig, Saxony, Germany
 - Private mail address: aliciaraber76@gmail.com
