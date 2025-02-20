@@ -1,7 +1,5 @@
 - Hello, I am Allie
-- I’m interested in Software/Game Developement
-- I’m looking for new opportunities in Leipzig, Saxony, Germany
+- I’m interested in Software/DB Developement
 - Private mail address: aliciaraber76@gmail.com
-- Mobile (private) +4917680633216
 - I am a nonbinary person and post-Transition
 - My pronouns are They/She
